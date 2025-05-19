@@ -1,0 +1,3 @@
+Image Prompt
+
+Bangladeshi woman, indian, dramatic, expressive, frightened, screaming, close-up, orange, low-cut, deep cleavage, deeply-plunging, saffron, sarong, draped, flowing fabric, water, river, body of water, police, multiple figures, men, darker skin tones, red bindi, jewelry, necklace with key pendant, high contrast, dramatic lighting, impressionistic, 3d, details, very detailed, hyperreal, indian style clothing, india, south asia, eyes wide, mouth open, intense facial expression, shallow depth of field

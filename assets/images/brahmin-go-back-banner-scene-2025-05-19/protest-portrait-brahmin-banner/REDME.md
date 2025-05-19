@@ -1,0 +1,7 @@
+Image Prompt
+
+a man with a dark beard holding a large, the man with a shaved head and a small, coiled tuft of hair on top, the man double-stranded brown beads reminiscent of rudraksha, as well as curved tilak markings and three golden horizontal lines near her temples, off-white banner that reads "BRAHMIN GO BACK" in bold, dripping crimson blood-red letters, dramatic lighting, orange-yellow glow in the background, crowd of people out-of-focus in the background, dark brown/black shadowy backdrop emphasizing the foreground character, hyperrealistic, india setting, political protest, impressive action, vintage aesthetic, film still, medium shot
+
+Image Prompt
+
+a man with a dark beard holding a large, the man with a shaved head and a small, coiled tuft of hair on top, the man double-stranded brown beads reminiscent of rudraksha, as well as curved tilak markings and three golden horizontal lines near her temples, off-white banner that reads "BRAHMIN GO BACK" in bold, dripping crimson blood-red letters, dramatic lighting, orange-yellow glow in the background, crowd of people out-of-focus in the background, dark brown/black shadowy backdrop emphasizing the foreground character, hyperrealistic, india setting, political protest, impressive action, vintage aesthetic, film still, medium shot
