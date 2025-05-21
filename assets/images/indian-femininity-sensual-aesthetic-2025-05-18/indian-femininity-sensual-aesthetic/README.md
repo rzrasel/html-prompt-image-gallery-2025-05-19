@@ -1,0 +1,11 @@
+Image Prompt:
+
+A young Indian woman, Wearing transparent saree and blouse is only option. I assume you are not thinking of being topless means not wearing blouse and no bra. large breast round shape clings to her curves. bare midriff, bare legs. nipples pull saree. The woman's expression is pleasant, focused on the camera. Slight tan tones, emphasizing the skin and fabric. full body. Hyperrealistic depiction of the fabrics and skin details, but focus on mood and posing. Indian aesthetic. Focus on femininity and sensuality, but not oversexualized.
+
+Image Prompt:
+
+A young Indian woman, Wearing transparent saree and blouse is only option. I assume you are not thinking of being topless means not wearing blouse and no bra. large breast round shape clings to her curves. bare midriff, bare legs. The woman's expression is pleasant, focused on the camera. Slight tan tones, emphasizing the skin and fabric. full body. Hyperrealistic depiction of the fabrics and skin details, but focus on mood and posing. Indian aesthetic. Focus on femininity and sensuality, but not oversexualized.
+
+Image Prompt:
+
+In a sultry evening, a captivating woman with her midriff bare, dons a vibrant red saree that clings to her curves, the delicate fabric teasingly revealing her erect nipples pressing against the flimsy blouse beneath. Pinching nipples. The intricate golden border of the drape accentuates the outline of her firm breasts, the pallu artfully arranged to cast a seductive shadow across her chest, leaving her aroused state to the imagination of those who dare to gaze. She stands before a floor-length mirror, her eyes meeting her reflection as she adjusts the pallu, ensuring that the tantalizing peaks remain visible, a silent invitation to the passionate dance of desire that awaits. With each movement, the soft jingle of her anklets whispers secrets of her longing, the crimson color of the garment mirroring the flaming passion that burns within. Her lips are slightly parted, a hint of a knowing smile playing on them, as the fabric of her blouse clings to the erect nipples, the stark contrast between the red of the saree and the paleness of her skin driving the observer wild with anticipation.

@@ -1,0 +1,3 @@
+Image Prompt
+
+A colorful traditional gathering in an indoor setting featuring individuals dressed in vibrant ethnic wear. The central scene showcases a couple seated closely, surrounded by others in lively attire. The woman is adorned in an orange saree with intricate embroidery, accessorizing with green bangles and gold earrings, while the man dons a patterned kurta in shades of red, orange, and cream. The background includes a mix of decor and people, exuding a festive ambiance commonly seen in Bollywood-inspired gatherings. The focus is on the cultural richness and the dynamic social interaction, embodying warmth and celebration.

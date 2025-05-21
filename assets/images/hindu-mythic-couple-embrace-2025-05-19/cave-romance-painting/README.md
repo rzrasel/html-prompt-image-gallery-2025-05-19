@@ -1,0 +1,3 @@
+Image Prompt
+
+impressionist painting, a Indian hindu man and a Indian hindu woman, a man with long white beard, woman with long brown hair, embracing, sitting in a cave, cave opening reveals a landscape with water, rocky terrain, warm earthy tones with hints of turquoise and violet, flowing fabric, woman wearing a saffron translucent garment, man wearing saffron tones, glowing light source within the cave, mythological, sensual, hyperrealistic skin details, details of clothing, ancient architecture, soft lighting, romantic, romantic pose, historical, style of 1800s, oil painting, fine art, 8k resolution
